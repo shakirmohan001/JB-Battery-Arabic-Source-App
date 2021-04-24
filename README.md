@@ -1,7 +1,7 @@
 # JB Battery Arabic Source App
 
-ن جميع شركات بطاريات الليثيوم أيون الأخرى نظرًا لموثوقية وأداء خلايانا. نحن متخصصون في بيع بطاريات الليثيوم عالية الجودة لعربة الجولف ، الرافعة الشوكية ، القوارب ، المركبات الترفيهية ، بنوك الألواح الشمسية ، المركبات الكهربائية المتخصصة ، والمزيد. لقد وزعنا حتى الآن أكثر من 15000 بطارية في جميع أنحاء العالم.
+JBBATTERY contrasts from any remaining lithium-particle battery organizations because of the unwavering quality and execution of our phones. We represent considerable authority in selling great lithium batteries for golf truck, forklift, boats, sporting vehicles, sunlight based board banks, strength electric vehicles, and then some. Until now, we have conveyed in excess of 15,000 batteries around the world. 
 
-لا تمتلك JBBATTERY واحدة من أكبر مخزونات بطاريات LiFEPO4 في العالم فحسب ، بل لدينا أيضًا القدرة على بناء بطاريات مخصصة لأي تطبيق تقريبًا. ومن الأمثلة على ذلك بطارياتنا المخصصة 24 فولت و 36 فولت و 48 فولت المصممة خصيصًا لمحركات التصيد. لم يسبق لركاب القوارب أن يتمكنوا من السفر لمسافة أبعد على بطارية محرك التصيد.
+In addition to the fact that JBBATTERY has one of the biggest LiFEPO4 battery stocks on the planet, we likewise can construct custom batteries for practically any application. One model is our committed 24V, 36V and 48V batteries that are uncommonly intended for savaging engines. Boat travelers have always been unable to travel further on a savaging engine battery. 
 
-هذا هو ما تتخصص فيه JBBATTERY ، وإيجاد حلول عملية لمواقف الطاقة الصعبة. الهدف النهائي لبطارية الليثيوم هو تلبية الطلب على الطاقة الفعالة والموثوقة للأجيال القادمة. لا تتردد في الاتصال بـ JBBATTERY مباشرةً لطرح أي أسئلة حول استخدام بطاريات الليثيوم كمصدر أساسي للطاقة.
+This is the thing that JBBATTERY spends significant time in, discovering down to earth answers for testing energy circumstances. A definitive objective of lithium battery is to satisfy the need for dependable and productive energy of people in the future. Don't hesitate to contact JBBATTERY straightforwardly with any inquiries regarding utilizing lithium batteries as the essential wellspring of energy.
